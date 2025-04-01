@@ -1,6 +1,6 @@
 Email de contact pour toute question : shifaoune@gmail.com
 
-Pour supprimer votre compte, vous pouvez soit le supprimer directement via l'application, soit il suffit de nous envoyer un mail à l'adresse quranquizzrevise@gmail.com avec l'objet 'Supprimer' et en nous fournissant votre username. 
+Pour supprimer votre compte, vous pouvez soit le supprimer directement via l'application, soit il suffit de nous envoyer un mail à l'adresse shifaoune@gmail.com avec l'objet 'Supprimer' et en nous fournissant votre username. 
 
 Nous nous engageons à respecter votre vie privée et à traiter vos demandes de suppression de compte de manière diligente.
 
